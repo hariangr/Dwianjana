@@ -8,3 +8,5 @@ Although I don't have to publish this data since I only the 4th winner (I still 
 The presentation was held at **August 8th 2019** and the winner announcement at **August 14th** so I should publish it then, but I got busy with **University Orientation** stuff (I just finished yesterday, read more at https://blog.harianugrah.com/2019/08/my-first-back-to-hometown-story/)
 
 I still seriously can't believe I lose... so unfair
+
+You can also learn about the project more at https://blog.harianugrah.com/tag/project_dwianjana/
